@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...my opening repertoire for 1.d4
 - 💬 Ask me about ...anything you want to know
 - 📫 How to reach me: ...just contact me via github
-- 😄 Pronouns: ...he/him
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...he/him [Lee-On]
+- ⚡ Fun fact: ...i have a lot of hobbies (e.g. tabletennis, chess, teakwondo etc.)
